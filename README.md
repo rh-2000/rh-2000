@@ -1,4 +1,4 @@
-### Rachel's Github
+### Rachel's GitHub
 
 <img width="20%" align="right" alt="Github" src="https://media3.giphy.com/media/KeQgaiv19rCEdVFnW8/200w_s.gif?cid=8d8c0358z6a2mrix5ccfvy2jvi8jn48ejbz6k0e5pjfoozt9&rid=200w_s.gif&ct=g" />
 
